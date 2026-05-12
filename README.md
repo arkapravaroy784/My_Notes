@@ -1,1 +1,1 @@
-Just Uploading My notes. If Preview is not avilabe, just download and open pdfs.
+Just Uploading My notes. If Preview is not available, just download and open pdfs.
